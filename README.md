@@ -1,2 +1,3 @@
 # Hello-World
 Total Fetish fashion
+All of your fashion needs: heels, handbags, accessories, bundles and more....
